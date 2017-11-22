@@ -1,1 +1,1 @@
-# 1703NodeStu
+kzystu.duapp.com
